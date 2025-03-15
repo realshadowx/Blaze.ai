@@ -6,7 +6,7 @@ Are you ready to save big on Blaze.ai's powerful AI solutions? Whether you’re 
 
 Right now, you can take advantage of exclusive [Blaze.ai promo codes](https://get.blaze.ai?fpr=shadow) for 2025 to score up to 50% off your purchase.
 
-[![|602x135](https://lh7-rt.googleusercontent.com/docsz/AD_4nXfy3eoU2teH6oPcVUBEc3yzHGGUss0is3r5_raVEjA6O3TBK649CyahD-3nZJ3UMa3eOPN-8k7dalVZNba_wIuEj9P3TWqDDWOuPb8H7TFse1AX2SMlaopcYp2kKFHVV_3E5WvS?key=2D0m3MWCTZgi-QYUGyIX9Aj2)](https://get.blaze.ai?fpr=shadow)
+[![Discount button](https://github.com/user-attachments/assets/e5cb2122-5258-4331-bbff-048ba1ae5555)](https://get.blaze.ai?fpr=shadow)
 
 ## Top Blaze.ai Promo Codes for 2025
 
@@ -36,7 +36,7 @@ Here’s a look at the hottest promo codes you can use to get major savings on B
 * Expiry Date: May 1, 2025.
 * How to Use the Code: Add two services to your cart and apply the code at checkout.
 
-[![|602x135](https://lh7-rt.googleusercontent.com/docsz/AD_4nXerhx73bOC7KK0hE3NKC4ZfCWS7wEH_tZBPXqHEOTKLQPfLBdG6hP1q53jE8pe9f19rBmABP3AQPJFOIlKKzSCAjV_2-FmDIDZFIkjOwBGIuVH7UWecwJU6h2I6SV2kR3cjpZaB?key=2D0m3MWCTZgi-QYUGyIX9Aj2)](https://get.blaze.ai?fpr=shadow)
+[![Discount button](https://github.com/user-attachments/assets/e5cb2122-5258-4331-bbff-048ba1ae5555)](https://get.blaze.ai?fpr=shadow)
 
 ## How to Redeem Blaze.ai Promo Codes
 
@@ -58,7 +58,7 @@ Once you’ve made your selection, proceed to the checkout page. Look for the �
 
 Check that the discount has been applied to your order. If everything looks good, confirm your purchase and enjoy the savings!
 
-[![|602x135](https://lh7-rt.googleusercontent.com/docsz/AD_4nXemTw5SBTNi8GEgk2ARsiLN-_YOebUTV8igmkNsevKXxwf3aj_MDS7H6n-q_L972Yo6D-ZgMHOn6T34oXKhp5Ny05qe3ZOq8jkE7TvOPC79zRK_WzChmBesqWuU99Ws8Ty9OUxWow?key=2D0m3MWCTZgi-QYUGyIX9Aj2)](https://get.blaze.ai?fpr=shadow)
+[![Discount button](https://github.com/user-attachments/assets/e5cb2122-5258-4331-bbff-048ba1ae5555)](https://get.blaze.ai?fpr=shadow)
 
 ## Pricing Information
 
@@ -76,7 +76,7 @@ Blaze.ai offers a variety of subscription plans tailored to different needs. Her
 
 With Blaze.ai's promo codes, you can make these plans even more affordable. Whether you're just starting out or scaling your AI operations, you’ll find a deal that works for your budget.
 
-[![|602x135](https://lh7-rt.googleusercontent.com/docsz/AD_4nXchwXIvt4SGRTHIqcRITXxEh8z75O490NqnwS5iOlZaxTs3QOjWYgJer6sedyL86OPM3MIAZGPJ0zM3M9PmEnTfKlkMvvUZ3oeskf4OLGwCidejgbCb77QnWLwqgoG37W972z4x?key=2D0m3MWCTZgi-QYUGyIX9Aj2)](https://get.blaze.ai?fpr=shadow)
+[![Discount button](https://github.com/user-attachments/assets/e5cb2122-5258-4331-bbff-048ba1ae5555)](https://get.blaze.ai?fpr=shadow)
 
 ## About Blaze.ai
 
