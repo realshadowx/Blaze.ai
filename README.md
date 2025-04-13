@@ -22,6 +22,8 @@ Here’s a look at the hottest promo codes you can use to get major savings on B
 * Expiry Date: March 31, 2025.
 * How to Use the Code: Simply enter the code during checkout to instantly apply the discount.
 
+[![Discount button](https://github.com/user-attachments/assets/dde5c351-24bc-417c-903a-03820e716cb7)](https://get.blaze.ai?fpr=shadow)
+
 ### 2. 30% Off on AI Subscription Plans
 
 * Coupon Code: SUB30BLAZE
@@ -29,6 +31,8 @@ Here’s a look at the hottest promo codes you can use to get major savings on B
 * Applicable Products/Services: Valid for all subscription plans, including Basic, Professional, and Enterprise.
 * Expiry Date: April 15, 2025.
 * How to Use the Code: Use this code when signing up for your subscription on Blaze.ai’s website.
+
+[![Discount button](https://github.com/user-attachments/assets/dde5c351-24bc-417c-903a-03820e716cb7)](https://get.blaze.ai?fpr=shadow)
 
 ### 3. Buy One, Get One 25% Off
 
