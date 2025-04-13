@@ -1,4 +1,4 @@
-# Blaze.ai Promo Code 2025 | Get 50% Off Discount 🔥
+# Blaze.ai Promo Code 2025 | Get 50% Off Discount
 
 [![Discount button](https://github.com/user-attachments/assets/dde5c351-24bc-417c-903a-03820e716cb7)](https://get.blaze.ai?fpr=shadow)
 
